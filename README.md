@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @nayeon143
+- 👀 I’m interested in Playing Video Games, Korean Culture, Data Analytics and Programming.
+- 🌱 I’m currently learning Programming and Data Analytics
